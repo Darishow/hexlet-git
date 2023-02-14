@@ -1,1 +1,1 @@
-Hello, Hexnet!
+Hello, Hexnet!"no code no pain"
